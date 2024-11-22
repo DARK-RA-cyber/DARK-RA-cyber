@@ -1,6 +1,6 @@
 # Assalamu-alaikum
 
-- 😎 I'm :- DARK-RA
+# I'm :- DARK-RA
 
 
 # MY PROFILE
